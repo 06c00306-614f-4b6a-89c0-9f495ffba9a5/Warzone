@@ -1,3 +1,10 @@
+## Road to become Superhuman - A healthy mind resides in a healthy body
+
+![image](https://github.com/user-attachments/assets/28dda59f-aa4a-44e0-bf2d-c7b640db151b)
+
+
+<br>
+
 ### Neuromuscular Conditioning & Metabolic Enhancement Protocol
 - Cardiovascular High-Intensity Interval Training (HIIT): Execute 30-minute protocols at 15 km/h utilizing 1:2 work-to-rest ratio periodization
 - Advanced Core Stabilization Methodology: Implementation of 5-set progressive abdominal activation sequences across multiple anatomical planes
