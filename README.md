@@ -1,7 +1,6 @@
-## Road to become Superhuman - A healthy mind resides in a healthy body
+## Road to become superhuman (a healthy mind resides in a healthy body)
 
-![image](https://github.com/user-attachments/assets/28dda59f-aa4a-44e0-bf2d-c7b640db151b)
-
+<img src="https://github.com/user-attachments/assets/28dda59f-aa4a-44e0-bf2d-c7b640db151b" width="400" height="400">
 
 <br>
 
